@@ -44,7 +44,7 @@ m == r.length
 0 <= l[i] < r[i] < n
 -105 <= nums[i] <= 105
 
-/*
+*/
 
 function checkArithmeticSubarrays(nums: number[], l: number[], r: number[]): boolean[] {
 	const result = [];

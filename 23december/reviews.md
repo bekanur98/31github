@@ -721,3 +721,77 @@ https://www.youtube.com/shorts/loQXmfJ3oe0
 </details>
 
 ---
+
+
+# Угадай рекламу
+
+## 1. реклама
+[https://www.youtube.com/watch?v=tjW7VzwHCdc](https://youtube.com/clip/UgkxYGGEtzjnw30w5UFMwxIqSEooJ_fHLesu?si=ztGgQE49szTAcTl-)https://youtube.com/clip/UgkxYGGEtzjnw30w5UFMwxIqSEooJ_fHLesu?si=ztGgQE49szTAcTl-
+
+<details>
+
+ <summary> Ответ </summary>
+ 
+ Карманный зарядник
+
+</details>
+
+---
+
+## 2. реклама
+https://youtube.com/clip/UgkxEpCgNLQtzj_6XeOBjjEkcuT3rGce8Eyr?si=uwGCSpFEvyPiPLEA
+<details>
+
+ <summary> Ответ </summary>
+ 
+ Страховая компания
+
+</details>
+
+---
+
+## 3. реклама
+https://youtube.com/clip/UgkxwjXjp_pvniqWtVuK2cVInNF82oQXfcBS?si=7NuTIeJzLfAvA0mC
+<details>
+
+ <summary> Ответ </summary>
+ 
+ Ikea
+
+</details>
+
+---
+
+## 4. реклама
+[https://youtube.com/clip/UgkxwjXjp_pvniqWtVuK2cVInNF82oQXfcBS?si=7NuTIeJzLfAvA0mC](https://youtube.com/clip/UgkxIUfwJpt_Uxsjt88ntP3E5EfJfCkpspJF?si=TFNYM4Lr3JbCC9Bf)https://youtube.com/clip/UgkxIUfwJpt_Uxsjt88ntP3E5EfJfCkpspJF?si=TFNYM4Lr3JbCC9Bf
+<details>
+
+ <summary> Ответ </summary>
+ 
+ Реклама про экологию, гибридные машины
+
+</details>
+
+---
+
+## 5. реклама
+https://youtube.com/clip/UgkxIUfwJpt_Uxsjt88ntP3E5EfJfCkpspJF?si=TFNYM4Lr3JbCC9Bf
+<details>
+
+ <summary> Ответ </summary>
+ 
+ Реклама про парковочную систему
+
+</details>
+
+---
+
+## 6. реклама
+https://youtube.com/clip/UgkxpehPLWBmoBHc9UDI63-CtjEV5OKuZfk1?si=1icoJJfBcba_9ogU
+<details>
+
+ <summary> Ответ </summary>
+ 
+ Реклама про бобов
+
+</details>
